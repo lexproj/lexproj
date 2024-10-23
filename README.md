@@ -1,4 +1,4 @@
-**15 y.o | Student**
+**16 y.o | Student**
 **:computer:  Studying C# / C++
 IG : lexproj**
 **dsc.gg/lexnova**
